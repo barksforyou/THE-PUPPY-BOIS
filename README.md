@@ -1,6 +1,4 @@
-─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
- the biggest intersex pup alive.. 
+‧₊˚ ⋅  𓐐𓎩 ‧₊˚ ⋅  ANY GENDER BESIDES THEY THEM || A GOOD BOY / GIRL 
+‧₊˚ ⋅  𓐐𓎩 ‧₊˚ ⋅
 
- woof woof bark master. 
-
-uhh hi... 
+chilling on pony town mostly
